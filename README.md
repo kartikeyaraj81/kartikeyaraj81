@@ -4,7 +4,7 @@
 - 📫 How to reach me -
 - CONTACT - 7894976963
 - INSTA ID- kartikk__raaz
-- Linkedin- inkedin.com/in/kartikeya-raj-285859230
+- Linkedin-linkedin.com/in/kartikeya-raj-285859230
 - Gmail-id : kartikeyaraj81@gmail.com
 
 <!---
